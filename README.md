@@ -1,2 +1,2 @@
 # GODZILLA-X
-BETTER HIT DA DECK LIKE DA CARD DEALER
+be4 download turn anti virus off, no this isnt wrd there is no viruses u guys suck lol
